@@ -1,1 +1,1 @@
-# ___'s UX Journal
+# Stephan's UX Journal
